@@ -1,2 +1,0 @@
-# rbemoeizorg-bombartments
-finacial warfare
